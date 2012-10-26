@@ -448,41 +448,11 @@ Rollin, Nicholas (EDT)/ Carvajal, Carol Styles (ED
 2010년 7월 5일
 [link](http://book.daum.net/detail/book.do?bookid=BOK00010583141AL)
 
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다](http://book.daum-img.net/R72x100/KOR9788995072608 "나는 언어정복의 사명을 띠고 이 땅에 태어났다")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 >
+![나는 언어정복의 사명을 띠고 이 땅에 태어났다 1, 2, 3, 4, 5, 6](http://book.daum-img.net/R72x100/KOR9788995072608 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 1, 2, 3, 4, 5, 6")
+< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 1, 2, 3, 4, 5, 6 >
 박대종
 1999년 8월 28일
 [link](http://book.daum.net/category/series.do?seriesID=BG18632122)
-
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다 2](http://book.daum-img.net/R72x100/KOR9788995072615 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 2")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 2 >
-박대종
-1999년 8월 28일
-[link](http://book.daum.net/detail/book.do?bookid=KOR9788995072615)
-
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다 3](http://book.daum-img.net/R72x100/KOR9788995072622 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 3")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 3 >
-박대종
-1999년 8월 28일
-[link](http://book.daum.net/detail/book.do?bookid=KOR9788995072622)
-
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다 4](http://book.daum-img.net/R72x100/KOR9788995072646 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 4")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 4 >
-박대종
-2000년 8월 11일
-[link](http://book.daum.net/detail/book.do?bookid=KOR9788995072646)
-
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다 5](http://book.daum-img.net/R72x100/KOR9788995072653 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 5")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 5 >
-박대종
-2000년 8월 11일
-[link](http://book.daum.net/detail/book.do?bookid=KOR9788995072653)
-
-![나는 언어정복의 사명을 띠고 이 땅에 태어났다 6](http://book.daum-img.net/R72x100/KOR9788995072660 "나는 언어정복의 사명을 띠고 이 땅에 태어났다 6")
-< 나는 언어정복의 사명을 띠고 이 땅에 태어났다 6 >
-박대종
-2003년 3월 19일
-[link](http://book.daum.net/detail/book.do?bookid=KOR9788995072660)
 
 ![사람은 왜 만족을 모르는가](http://book.daum-img.net/R72x100/KOR9788995688939 "사람은 왜 만족을 모르는가")
 < 사람은 왜 만족을 모르는가 >
@@ -509,6 +479,7 @@ Rollin, Nicholas (EDT)/ Carvajal, Carol Styles (ED
 2010년 12월 30일
 [link](http://book.daum.net/detail/book.do?bookid=KOR9788942340552)
 
+![장자](http://book.daum-img.net/R110x160/KOR9788985395977 "장자")
 < 장자 >
 안병주 외
 2002년 10월 25일
@@ -586,6 +557,7 @@ Strategic Marketing Network 편집부
 2010년 9월 30일
 [link](http://book.daum.net/detail/book.do?bookid=BOK00010846008IN)
 
+![엔 분의 일 1/n 2009 겨울 - 창간호](http://image.ypbooks.co.kr/upload/img/book/235/100076235.gif "엔 분의 일 1/n 2009 겨울 - 창간호")
 < 엔 분의 일 1/n 2009 겨울 - 창간호 >
 김탁환
 2009년 12월 4일
